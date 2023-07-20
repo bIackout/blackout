@@ -1,3 +1,3 @@
 # blackout
 
-![https://i.postimg.cc/kggw80Br/mfw.gif]
+![](https://files.catbox.moe/xylv9j.png)
