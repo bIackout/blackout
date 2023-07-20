@@ -1,8 +1,3 @@
 # blackout
-Hey all, Val here!
-fdfjdfdfdfdksakaeslkoa
-dsjdsasjkaiskjisjkaijdsjx
-dsdsiokfoaokeksakksa
 
-hello :)
-fdsdsdsds 
+![https://i.postimg.cc/kggw80Br/mfw.gif]
